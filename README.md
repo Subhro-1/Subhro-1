@@ -1,4 +1,4 @@
-# 💫 About Me:
+# ✨ About Me:
 📍 Currently I'm living in Bandel, Hooghly.<br>📖 I'm currently persuing B.Tech in Electrical and Electronics Engineering at Academy Of Technology.
 
 
